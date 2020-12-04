@@ -1,3 +1,5 @@
+ 
+
  Instructions
 
 for cake:
@@ -20,46 +22,6 @@ Transfer 1 cake onto a serving dish/plate, flat-side down. Trim the top dome off
 Place second cake layer on top and use remaining frosting to cover top and sides of cake.
 Crumble trimmed pieces of cake to decorate.
 Enjoy!
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 
